@@ -2,7 +2,7 @@
 
 
 💻 - Estudando programação diariamente,
-✔️ - Dev Front-End em evolução
+✔️ - Dev Front-End e Mobile em evolução
  Agradecendo sempre🙏 !!
 
 📭 - Contato: felipelimapsn1717@gmail.com.
